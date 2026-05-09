@@ -1,1 +1,1 @@
-This is a blog to explor the atest news about tech 
+This is a blog to explore latest news
